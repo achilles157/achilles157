@@ -7,7 +7,6 @@
 - 💬 Ask me about anything!
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/falahfahrurozi/).
 - ⚡ Fun fact: i was sleepy
--->
 
 ### Github Statistic
 <p align="left">
