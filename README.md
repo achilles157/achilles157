@@ -3,7 +3,7 @@
 - 🔭 I’m currently studying in Uninversitas Indraprasta PGRI
 - 🌱 I’m currently learning cloud computing and machine learning
 - 👯 I’m looking to collaborate on cloud services
-- 🤔 I’m looking for help with my website project
+- 🤔 I’m looking for any internship
 - 💬 Ask me about anything!
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/falahfahrurozi/).
 - ⚡ Fun fact: i was sleepy
